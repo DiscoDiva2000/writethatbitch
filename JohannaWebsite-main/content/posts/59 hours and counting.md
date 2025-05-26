@@ -1,0 +1,25 @@
+---
+title: 59 hours and counting
+date: 2023-07-16T09:43:57+02:00
+draft: false
+description: a poem
+tags:
+---
+
+the patriarchy is too deep within me
+
+how do I get it out
+
+like a parasite
+
+it takes over from time to time
+
+scoop it out with a spoon
+
+old peanut butter in a jar
+
+ingest the rest
+
+pass right through me
+
+and shit it out
